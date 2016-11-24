@@ -26,7 +26,9 @@ It is difficult to overlook the significance of the mother, having lost her chil
 
 ### Biblical stuff
 In the beginning, she is Eve fallen from grace, solely to blame for the "original sin" which the snake of Genesis tempted her into. Alligator, who one may conceivably construe as being her "guardian angel", aids her as she -- reborn as Mary, the mother almost defined by her great, all-consuming love for her children -- stands with her foot metaphorically on the head of the snake, the enemy of woman, and consequently of all mankind. She is fierce, and her fury (unlike the she-oaks of the introductory passage, which are implied to be "darker" and inferior) is not liable to turn a cheek to this menace. Alligator kills the snake, and she tosses it into the fire, watching it burn with neither glee nor pity. 
+
+The original sin may have been the "woman's fault", but the story shows how it is the woman who nurtures life, in the role of the protector when need be.
  
 ### Toughness
 * The lack of pity is yet another facet of the fact that her essential femininity has, by the author's own admission, been stunted and overcome by the trials of everyday life in the harsh, inhospitable bush.
-* 
+* The death of a little son of her brother-in-law's
